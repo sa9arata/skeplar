@@ -14,3 +14,6 @@ $\color{#C7F4E4}{\text{˙}}$  ⠀  $\color{#33C7E4}{\text{₃w⁴}}$⠀  $\color
 
 
 <img src="ezgif-6dadf5df35ee423f.webp" width="270">
+
+
+ℙor⠀  𝙩i ⠀𝒎𝒊⠀  aოօɾ,⠀  𝑭𝗿𝗮𝗻ces ⠀  𝑳ᵢm᥆ᥒ⠀  ♡
