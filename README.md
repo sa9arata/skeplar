@@ -2,7 +2,4 @@
 <div align="center">
 
 
-<img src="https://file.garden/aiTdUMzt_iWdaBSZ/skh.gif" width="300">
-
-
-hi
+<img src="https://file.garden/aiTdUMzt_iWdaBSZ/skp.webp" width="300">
