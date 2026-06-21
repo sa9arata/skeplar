@@ -11,3 +11,6 @@
 
 
 $\color{#C7F4E4}{\text{˙}}$  ⠀  $\color{#33C7E4}{\text{₃w⁴}}$⠀  $\color{#3FA4E7}{\text{𝓭emi𝘀𝗲𝘅𝘂𝗮𝗹}}$⠀ ⠀ $\color{#408DF6}{\text{𝑡𝑎ken}}$  ⠀  $\color{#C7F4E4}{\text{ও}}$
+
+
+<img src="ezgif-6dadf5df35ee423f.webp" width="270">
