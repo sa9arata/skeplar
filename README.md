@@ -16,4 +16,4 @@ $\color{#C7F4E4}{\text{˙}}$  ⠀  $\color{#33C7E4}{\text{₃w⁴}}$⠀  $\color
 <img src="ezgif-6dadf5df35ee423f.webp" width="270">
 
 
-ℙor⠀  𝙩i ⠀𝒎𝒊⠀  aოօɾ,⠀  𝑭𝗿𝗮𝗻ces ⠀  𝑳ᵢm᥆ᥒ⠀  ♡
+$\color{#B4FFFF}{\text{ℙor}}$⠀  $\color{#F8FFFF}{\text{𝙩i}}$⠀  $\color{#F8BFD3}{\text{𝒎i}}$⠀  $\color{#FA77B5}{\text{aოօɾ,}}$⠀  $\color{#AB364E}{\text{𝑭𝗿𝗮𝗻ces}}$ ⠀  $\color{#61106A}{\text{𝑳ᵢm᥆ᥒ⠀  ♡}}$
